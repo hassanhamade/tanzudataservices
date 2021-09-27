@@ -1,2 +1,0 @@
-# tanzudataservices!
-[Uploading image.png…]()
